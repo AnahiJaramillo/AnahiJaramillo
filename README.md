@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnahiJaramillo
-- 👀 I’m interested in Automation, Operations, and Project Managing
+- 👀 I’m interested in Automation, Operations and Project Managing
 - 🌱 I’m currently Improving my skills on Funnel Building
 - 📫 You can contact me at anahijaramillo1997@gmail.com
 
